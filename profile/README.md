@@ -1,1 +1,1 @@
-# Willkommen bei Stormannsgal - Das Projekt vom Größenwahn getrieben wird.
+# Willkommen bei Stormannsgal - Das Projekt das vom Größenwahn getrieben wird.
